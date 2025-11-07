@@ -37,3 +37,6 @@ Previous lesson:
 ![pexels-mccutcheon-1148998](https://github.com/user-attachments/assets/766429d5-318c-4e05-a012-b9d58e909f8c =200x200)
 stolbitsa.com/fistachka/ohrana<br><br>
 
+![з8](https://github.com/user-attachments/assets/4f19731a-999b-4b5d-9b41-af696e077e37)
+![з7](https://github.com/user-attachments/assets/041e40fa-0e43-4755-9642-311485511c4e)
+
